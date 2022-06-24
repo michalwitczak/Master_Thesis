@@ -1,0 +1,2 @@
+# Master_Thesis
+MASTER THESIS - MICHAŁ WITCZAK 
